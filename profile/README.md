@@ -1,1 +1,1 @@
-We're a small team that creates mobile apps, software, and website from different places.
+Expertise in mobile technology and building solutions tailored to your business needs.
